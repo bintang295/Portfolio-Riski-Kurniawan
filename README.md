@@ -1,2 +1,1 @@
-# Portfolio-Riski-Kurniawan
-jika mengclone ijin dahulu ya
+# aulia rahmatn hidayat
